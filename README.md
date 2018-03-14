@@ -1,3 +1,3 @@
 # Tutorial-for-Seminar
 
-Vatsal Mistry 150303105090
+gney patel 160303105216
